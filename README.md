@@ -1,2 +1,2 @@
 # Nihal Mistry
-Software Developer
+Stay tuned for updates :)
